@@ -1,1 +1,1 @@
-# Participacao-eventos
+# Participações do coletivo em eventos de teconologia
